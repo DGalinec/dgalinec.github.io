@@ -30,3 +30,9 @@ From 01/2012 to 12/2016 @**Technodom Group** in Almaty, KZ - *Commercial Directo
 * achieved #1 consumer preference in Kazakhstan 4 years in a row by developing a strong service culture within the Company;
 * established a dominant position in the online business.
 
+From 01/2008 to 12/2011 @**Koninklijke Philips N.V.** in Almaty, KZ - *Sales Director Central Asia & Caucasus*
+* lead sales and trade marketing forces in the different countries;
+* grew the business +60%;
+* successfully conquered a number of new markets in the region;
+* recorded highest business profitability among all Central and Eastern European countries 3 years in a row;
+* member of the Philips global management team.
