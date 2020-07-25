@@ -20,6 +20,12 @@ From 01/2019 to present @**EY (Ernst & Young)** - *EY OpsChain Sales & Marketing
 
 From 01/2017 to 12/2018 @**Career break to learn blockchain technology**
 * developed decentralized applications on the Ethereum blockchain;
-* gained advanced knowledge of blockchain technology and its ecosystem;
-* some examples of my projects are saved in my GitHub repository.
+* gained advanced knowledge of blockchain technology and its ecosystem.
 
+From 01/2012 to 12/2016 @**Technodom Group** - *Commercial Director & Board Member*
+* Consumer Electronics retail chain - Almaty, Kazakhstan
+* re-organised commercial, marketing and consumer care teams;
+* grew market share from 24% to 30%;
+* strengthened business leadership with +$600M revenues in 2016;
+* achieved #1 consumer preference in Kazakhstan 4 years in a row by developing a strong service culture within the Company;
+* established a dominant position in the online business.
