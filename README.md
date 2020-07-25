@@ -12,7 +12,7 @@ French (native) - Russian (fluent) - English (fluent)
 
 ## Experience
 
-From 01/2019 to present @**EY (Ernst & Young)** - *EY OpsChain Sales & Marketing Lead*
+From 01/2019 to present @**EY (Ernst & Young)** in London, UK - *EY OpsChain Sales & Marketing Lead*
 * lead the EMEIA sales pipeline;
 * developed sales enablement material of the EY OpsChain, a suite of applications that industrialises the use of blockchain;
 * set-up / lead go-to-market and product adoption activities;
@@ -22,8 +22,8 @@ From 01/2017 to 12/2018 @**Career break to learn blockchain technology**
 * developed decentralized applications on the Ethereum blockchain;
 * gained advanced knowledge of blockchain technology and its ecosystem.
 
-From 01/2012 to 12/2016 @**Technodom Group** - *Commercial Director & Board Member*
-* Consumer Electronics retail chain - Almaty, Kazakhstan
+From 01/2012 to 12/2016 @**Technodom Group** in Almaty, KZ - *Commercial Director & Board Member*
+* Largest consumer electronics retail chain in Central Asia;
 * re-organised commercial, marketing and consumer care teams;
 * grew market share from 24% to 30%;
 * strengthened business leadership with +$600M revenues in 2016;
