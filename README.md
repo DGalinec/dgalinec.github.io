@@ -18,7 +18,7 @@ French (native) - Russian (fluent) - English (fluent)
 * set-up / lead go-to-market and product adoption activities;
 * participated in the development of blockchain solutions.
 
-**01/2017 to 12/2018** @**Career break to learn blockchain technology**
+**01/2017 to 12/2018** @[Career break to learn blockchain technology](https://github.com/DGalinec)
 * developed decentralized applications on the Ethereum blockchain;
 * gained advanced knowledge of blockchain technology and its ecosystem.
 
