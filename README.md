@@ -1,1 +1,1 @@
-# DGalinec.github.io
+# dgalinec.github.io
