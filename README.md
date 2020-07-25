@@ -17,3 +17,9 @@ From 01/2019 to present @**EY (Ernst & Young)** - *EY OpsChain Sales & Marketing
 * developed sales enablement material of the EY OpsChain, a suite of applications that industrialises the use of blockchain;
 * set-up / lead go-to-market and product adoption activities;
 * participated in the development of blockchain solutions.
+
+From 01/2017 to 12/2018 @**Career break to learn blockchain technology**
+* developed decentralized applications on the Ethereum blockchain;
+* gained advanced knowledge of blockchain technology and its ecosystem;
+* some examples of my projects are saved in my GitHub repository.
+
