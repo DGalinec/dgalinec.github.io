@@ -41,3 +41,10 @@ French (native) - Russian (fluent) - English (fluent)
 * lead the country organisation with full P&L responsibility;
 * worked-out and successfully implemented first long-term strategy plans for both B2B and B2C businesses: consumer electronics, lighting, medical systems;
 * main company representative towards government, I insured legal & fiscal compliance by the Philips group in the country.
+
+**01/2000 to 12/2007** @[Koninklijke Philips N.V.](https://www.philips.com/) in Almaty, KZ - *Senior Sales Manager Central Asia & Caucasus*
+* hunted and farmed a network of business partners in all the countries of the Central Asia & Caucasus region;
+* managed field sales force and performance versus plan;
+* attracted Headquarters investments in the Central Asia region.
+
+
