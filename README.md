@@ -12,17 +12,17 @@ French (native) - Russian (fluent) - English (fluent)
 
 ## Experience
 
-From 01/2019 to present @[EY (Ernst & Young)](https://www.ey.com/) in London, UK - *EY OpsChain Sales & Marketing Lead*
+**01/2019 to present** @[EY (Ernst & Young)](https://www.ey.com/) in London, UK - *EY OpsChain Sales & Marketing Lead*
 * lead the EMEIA sales pipeline;
 * developed sales enablement material of the EY OpsChain, a suite of applications that industrialises the use of blockchain;
 * set-up / lead go-to-market and product adoption activities;
 * participated in the development of blockchain solutions.
 
-From 01/2017 to 12/2018 @**Career break to learn blockchain technology**
+**01/2017 to 12/2018** @**Career break to learn blockchain technology**
 * developed decentralized applications on the Ethereum blockchain;
 * gained advanced knowledge of blockchain technology and its ecosystem.
 
-From 01/2012 to 12/2016 @[Technodom Group](https://www.technodom.kz/) in Almaty, KZ - *Commercial Director & Board Member*
+**01/2012 to 12/2016** @[Technodom Group](https://www.technodom.kz/) in Almaty, KZ - *Commercial Director & Board Member*
 * Largest consumer electronics retail chain in Central Asia;
 * re-organised commercial, marketing and consumer care teams;
 * grew market share from 24% to 30%;
@@ -30,7 +30,7 @@ From 01/2012 to 12/2016 @[Technodom Group](https://www.technodom.kz/) in Almaty,
 * achieved #1 consumer preference in Kazakhstan 4 years in a row by developing a strong service culture within the Company;
 * established a dominant position in the online business.
 
-From 01/2008 to 12/2011 @**Koninklijke Philips N.V.** in Almaty, KZ - *Sales Director Central Asia & Caucasus*
+**01/2008 to 12/2011** @[Koninklijke Philips N.V.](https://www.philips.com/) in Almaty, KZ - *Sales Director Central Asia & Caucasus*
 * lead sales and trade marketing forces in the different countries;
 * grew the business +60%;
 * successfully conquered a number of new markets in the region;
