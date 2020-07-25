@@ -31,8 +31,13 @@ French (native) - Russian (fluent) - English (fluent)
 * established a dominant position in the online business.
 
 **01/2008 to 12/2011** @[Koninklijke Philips N.V.](https://www.philips.com/) in Almaty, KZ - *Sales Director Central Asia & Caucasus*
-* lead sales and trade marketing forces in the different countries;
+* lead sales and trade marketing forces in the different countries of the Central Asia region;
 * grew the business +60%;
 * successfully conquered a number of new markets in the region;
 * recorded highest business profitability among all Central and Eastern European countries 3 years in a row;
 * member of the Philips global management team.
+
+**01/2001 to 12/2011** @[Philips Electronics R.O. Kazakhstan](https://www.philips.kz/) in Almaty, KZ - *General Manager*
+* lead the country organisation with full P&L responsibility;
+* worked-out and successfully implemented first long-term strategy plans for both B2B and B2C businesses: consumer electronics, lighting, medical systems;
+* main company representative towards government, I insured legal & fiscal compliance by the Philips group in the country.
