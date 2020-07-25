@@ -29,3 +29,4 @@ From 01/2012 to 12/2016 @**Technodom Group** - *Commercial Director & Board Memb
 * strengthened business leadership with +$600M revenues in 2016;
 * achieved #1 consumer preference in Kazakhstan 4 years in a row by developing a strong service culture within the Company;
 * established a dominant position in the online business.
+
